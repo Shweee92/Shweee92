@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Shweee92
 - 👀 I’m interested in Music, Coding, Games, Food 
 - 🌱 I’m currently learning Computer Engineering
-- 💞️ I’m looking to collaborate with good ethics passionate people
+- 💞️ I’m looking to collaborate with Ethical passionate people
 - 📫 How to reach me --> Whatsapp
 
 
